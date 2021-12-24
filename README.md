@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Matheus-camacho
+- 👀 I’m interested in anything that has to do with finance, technology or art
+- 🌱 I’m currently learning Crypto and VR development
+- 💞️ I’m looking to collaborate on anything that sounds interesting
+- 📫 How to reach me matheushcamacho@gmail.com
